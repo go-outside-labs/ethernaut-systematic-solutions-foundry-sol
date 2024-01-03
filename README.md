@@ -10,7 +10,6 @@
 ##### 🔋 by the way, do you remember overthewire? **[here is my WeChall profile from playing it in 2014](https://www.wechall.net/profile/bt3gl)**.
 
 
-##### 🔋 **[i don't know who this people is, but they are trying to bully me (check the dates and the url they linked)](https://weekinethereumnews.com/page/2/)**. in any case, i am pretty grateful for my life, my community, and my work for getting into weird abusive fights. i am not engaging or reading "news" anymore. i am an old woman, these tactics don't work for me anymore 🤷🏽‍♀️. many are telling me that i should speak up, but i dont really have time for this, so i just wrote this **[open letter to vitalik](https://mirror.xyz/bt3gl.eth/W7gkpABLmR-_CqNxlGh01cVDIuAFVuV9CtyuIo6zyow)**.
 
 <br>
 
