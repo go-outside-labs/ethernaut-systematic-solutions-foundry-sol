@@ -225,5 +225,3 @@
 
 ###### (like to solve these types of problems? perhaps you are [neo-cypherpunk](https://github.com/go-outside-labs/neo-cypherpunk-toolkit), then?)
 
-
-<br>
